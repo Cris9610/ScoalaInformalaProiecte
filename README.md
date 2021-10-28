@@ -1,0 +1,2 @@
+# ScoalaInformalaProiecte
+Proiecte - ScoalaInformala
